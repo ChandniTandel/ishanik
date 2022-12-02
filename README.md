@@ -5,6 +5,3 @@ I love stem cells
 Environmental too
 Sorry industrial biotech 
 I love squirrle and panda
-
-
-you have to check about koala.
